@@ -6,7 +6,7 @@
 - so it's easy to find me, I will put my phone number so anyone wanna have some friend from Sarajevo, 
 Bosnia and Herzegovina can add me over socialmedia and free apps for calling and connetcting, 
 as you can see I'm trying to gather more ppls than less. 
-- Mobile : +387 62 601-347
+- Mobile : +387 60 3155285
 - Mails .: maltene@icloud.com; 
            krejovic@outlook.com
            o.krejovic@gmail.com
